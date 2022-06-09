@@ -1,1 +1,1 @@
-JooEun J
+JooEun Jeong
